@@ -1,1 +1,2 @@
-I hope it gets better
+Never keep pushing
+
